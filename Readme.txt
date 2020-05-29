@@ -25,9 +25,6 @@ Only use this for NML. Don't use it for Moon high round games.
 
 Originaly created by Verition and shared By Strett 
  
-▶️ Strett 
-Twitter: https://twitter.com/sirstrett 
-Twitch: https://www.twitch.tv/strett1 
-!pb: https://docs.google.com/spreadsheets/d/1bJ9EwxD5TOrMEfjlhJsFLaeOIdsItgoz8CK8fQW7Vjk 
-
+https://twitter.com/sirstrett 
+https://www.twitch.tv/strett1 
 https://www.youtube.com/user/JCxVerition 
